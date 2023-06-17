@@ -1,6 +1,6 @@
 # liga-da-justica
 
-![/imgs-videos/Legado/Liga%20da%20Justi%C3%A7a%20Capa.jpg](https://redecanais.cx/imgs-videos/Legado/Liga%20da%20Justi%C3%A7a%20Capa.jpg)  
+![](https://redecanais.cx/imgs-videos/Legado/Liga%20da%20Justi%C3%A7a%20Capa.jpg)  
 **1ª Temporada**  
 **Episódio 01 -** Origens Secretas (Parte 1) - [**Assistir**](https://redecanais.cx/musicvideo.php?vid=aeaf156fd)  
 **Episódio 02 -** Origens Secretas (Parte 2) - [**Assistir**](https://redecanais.cx/musicvideo.php?vid=2f2602cf6)  
