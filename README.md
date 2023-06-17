@@ -1,6 +1,5 @@
 # liga-da-justica
 
-![](https://redecanais.cx/imgs-videos/Legado/Liga%20da%20Justi%C3%A7a%20Capa.jpg)  
 **1ª Temporada**  
 **Episódio 01 -** Origens Secretas (Parte 1) - [**Assistir**](https://redecanais.cx/musicvideo.php?vid=aeaf156fd)  
 **Episódio 02 -** Origens Secretas (Parte 2) - [**Assistir**](https://redecanais.cx/musicvideo.php?vid=2f2602cf6)  
@@ -56,7 +55,7 @@
 **Episódio 50 -** Escrito nas Estrelas (Parte 1) - [**Assistir**](https://redecanais.cx/musicvideo.php?vid=4c9c455de)  
 **Episódio 51 -** Escrito nas Estrelas (Parte 2) - [**Assistir**](https://redecanais.cx/musicvideo.php?vid=56c79a28c)  
 **Episódio 52 -** Escrito nas Estrelas (Parte 3) - [**Assistir**](https://redecanais.cx/musicvideo.php?vid=c6114450c)  
-![/imgs-videos/Legado/Liga%20da%20Justi%C3%A7a%20Sem%20Limites%20Capa.jpg](https://redecanais.cx/imgs-videos/Legado/Liga%20da%20Justi%C3%A7a%20Sem%20Limites%20Capa.jpg) 
+
 
 **1ª Temporada**  
 **Episódio 01 -** Iniciação - [**Assistir**](https://redecanais.cx/musicvideo.php?vid=864dd9348)  
